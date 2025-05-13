@@ -5,4 +5,4 @@
 
 ## 📫 Свяжитесь со мной
 - Email: eduard2417@yandex.ru
-- Telegram: [@Eduard_Raganyan](https://twitter.com/yourusername)
+- Telegram: [@Eduard_Raganyan](https://t.me/Eduard_Raganyan)
